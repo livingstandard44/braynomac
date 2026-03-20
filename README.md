@@ -1,2 +1,2 @@
 # braynomac
-Shop luxury bedding, home essentials, and quality household products in the UK. Discover stylish, comfortable, and affordable living solutions online.
+Upgrade your home with luxury bedding, premium home essentials, and high-quality household products available across the UK. Explore a wide range of stylish designs crafted for comfort, durability, and everyday living. From soft, elegant bedding to practical home solutions, find everything you need to enhance your space. Enjoy affordable prices without compromising on quality, and create a comfortable, modern lifestyle with products designed to suit every home and taste.
